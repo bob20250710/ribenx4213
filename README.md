@@ -16,4 +16,4 @@ SEO优化对于成人平台来说尤为重要。站点通过精确的关键词�
 
 社交互动功能的引入也使得平台更具吸引力。通过评论、分享和评分功能，用户能够与其他观众进行互动，增加内容的曝光度，提升平台的活跃度和黏性。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bob20250710/ribenx4213 ）</span>
